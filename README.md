@@ -1,1 +1,1 @@
-Silimwe is a softwaare engineer 
+Silimwe is a software engineer 
